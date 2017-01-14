@@ -77,3 +77,11 @@ Cela prendrait du temps pour qu'ils arrivent.
 Les insectes peuvent aller plus vite quand ils vont en ligne droite avec un but mais toutefois, deux pâtés de maisons est une longue distance pour quelque chose si petit.
 Je m'occupais par ouvrant mon sac et triant le contenu.
 Mon costume.
+
+Le premier des insectes commençai entrer par la fenêtre et se rassembler sur l'établi.
+Mon pouvoir ne me donnais pas la connaissance des noms officiels des insectes que je dirigeais, mais tout le monde peut reconnaître les insectes qui rampaient dans la pièce.
+Ceux-ci étaient les veuves noires.
+Une des araignées les plus dangereuses qu'on peut trouver aux États-Unis.
+Leur morsure pourrait être mortelle, mais pas toujours, et elles ont tendance à mordre sans provocations.
+Même elles étaient sous mon contrôle complet, elles m'effrayaient.
+À ma demande, les douzaines sur douzaines des araignées s'arrangèrent et commencèrent à poser les lignes de soie sur l'établi et les tisser dans un seul oeuvre.
