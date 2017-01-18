@@ -85,3 +85,8 @@ Une des araignées les plus dangereuses qu'on peut trouver aux États-Unis.
 Leur morsure pourrait être mortelle, mais pas toujours, et elles ont tendance à mordre sans provocation.
 Même elles étaient sous mon contrôle complet, elles m'effrayaient.
 À ma demande, les douzaines sur douzaines des araignées s'arrangèrent et commencèrent à poser les lignes de soie sur l'établi et les tisser dans un seul oeuvre.
+
+Il y a trois mois, après que j'avais récupéré de la manifestation de mes pouvoirs, j'avais commencé à préparer pour mon but.
+La préparation avait impliqué un programme d'entraînement, entraîner mon pouvoir, faire la récherche, et préparer mon costume.
+Préparer un costume est plus difficile qu'on ne le pense.
+Bien que les membres des équipes des super-héros ont sûrement les sources officiels pour leur costume, les autres avait besoin d'achèter leur costume, le contruire petit à petit avec les choses qui achetaient d'un magasin, ou le faire de zéro.
