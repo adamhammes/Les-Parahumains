@@ -90,3 +90,5 @@ Il y a trois mois, après que j'avais récupéré de la manifestation de mes pou
 La préparation avait impliqué un programme d'entraînement, entraîner mon pouvoir, faire la récherche, et préparer mon costume.
 Préparer un costume est plus difficile qu'on ne le pense.
 Bien que les membres des équipes des super-héros ont sûrement les sources officiels pour leur costume, les autres avait besoin d'achèter leur costume, le contruire petit à petit avec les choses qui achetaient d'un magasin, ou le faire de zéro.
+Chaque option a ses problèmes.
+Si on acheta son costume sur l'internet, il 
