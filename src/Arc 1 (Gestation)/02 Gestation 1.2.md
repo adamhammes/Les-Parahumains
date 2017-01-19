@@ -97,6 +97,11 @@ L'option final, assemblant un costume de zéro, était beaucoup de travail et po
 
 Dans la deuxième semaine après que j'avais commencé à comprendre mes pouvoirs, quand je n'étais pas sûre ce qui se passait, j'avais rencontré une émission au sujet d'un tenue qui pourrait résister à une attaque d'un ours.
 L'émission avait mentionné que le tenue était composé de soie d'araignée synthétique, qui avait inspiré mon projet.
-Pourqoui devrais-j'utiliser la soie synthétique si je pourrais produire la vraie chose?
+Pourqoui est-ce que je devrais utiliser la soie synthétique si je pourrais produire la vraie chose?
 
+Pour être honnête, le procès était plus difficile que cela.
+Pas toutes les araignées marcherais, et les veuves noires étaient difficile de trouver.
+Typiquement elles ne se trouvaient pas dans le nord-est, qui a un climat plus froid, mais heureusement l'élément essentiel qui a fait Brockton Bay une destination préférée des vacanciers aussi le fait une place ou les veuves noirs pourrait vivre, si pas bien se porter.
+À savoir, il faisait chaud.
+À grace de la géographie environnante et l'océan limitrophes à l'est,
 
