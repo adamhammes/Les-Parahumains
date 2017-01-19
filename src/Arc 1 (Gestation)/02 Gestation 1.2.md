@@ -91,4 +91,12 @@ La préparation avait impliqué un programme d'entraînement, entraîner mon pou
 Préparer un costume est plus difficile qu'on ne le pense.
 Bien que les membres des équipes des super-héros ont sûrement les sources officiels pour leur costume, les autres avait besoin d'achèter leur costume, le contruire petit à petit avec les choses qui achetaient d'un magasin, ou le faire de zéro.
 Chaque option a ses problèmes.
-Si on acheta son costume sur l'internet, il 
+Si on acheta son costume sur l'internet on risquait étant découvert avant on avait même mis son costume.
+On pourrait assembler un costume avec les choses qui achètaient de magasins mais peu de gens pourrait faire ça bien.
+L'option final, assemblant un costume de zéro, était beaucoup de travail et pourrait avoir les mêmes risques des deux autres - étant découvert ou ayant un costume nul - dépendant de comment on obtient les pièces du costume.
+
+Dans la deuxième semaine après que j'avais commencé à comprendre mes pouvoirs, quand je n'étais pas sûre ce qui se passait, j'avais rencontré une émission au sujet d'un tenue qui pourrait résister à une attaque d'un ours.
+L'émission avait mentionné que le tenue était composé de soie d'araignée synthétique, qui avait inspiré mon projet.
+Pourqoui devrais-j'utiliser la soie synthétique si je pourrais produire la vraie chose?
+
+
