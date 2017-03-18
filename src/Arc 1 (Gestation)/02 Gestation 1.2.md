@@ -103,5 +103,12 @@ Pour être honnête, le procès était plus difficile que cela.
 Pas toutes les araignées marcherais, et les veuves noires étaient difficile de trouver.
 Typiquement elles ne se trouvaient pas dans le nord-est, qui a un climat plus froid, mais heureusement l'élément essentiel qui a fait Brockton Bay une destination préférée des vacanciers aussi le fait une place ou les veuves noirs pourrait vivre, si pas bien se porter.
 À savoir, il faisait chaud.
-À grace de la géographie environnante et l'océan limitrophes à l'est,
+À grace de la géographie environnante et l'océan limitrophes à l'est, Brockton Bay a l'hiver doux et l'été chaud confortablement.
+Les veuves noires et les gens qui courent partout avec des costumes moulants etaient tous les deux reconnaissants pour les bons temps.
 
+Avec mon pouvoir, je me suis assurée que les araignées puissent se multiplier.
+Je les avais gardé dans des endroits sûrs et les avais engraissé avec de la proie que j'avais dirigé vers eux.
+J'avais flippé le changement mental qui leur a dit se reproduire et pondre les oeufs comme si c'était d'été, avais donné plus de proie aux centaines de petites qui avaient abouti et avais gagné d'innombrables fileurs de costumes pour la peine.
+Le problème le plus sérieux avait été que les veuves noires sont territoriales donc il fallait les étendre afin d'assurer qu'elles ne se tuaient pas quand je n'étais pas là pour les diriger.
+Une fois par semaine, pendant que je faisais mon jogging du matin, je les faisais tourner pour que j'avais une réserve fraîche et remplies avec des protéines de soie.
+Cela a permis à moi que les araignées étaient toujours prêtes pour travailler sur le costume dans l'après-midi, après l'école.
