@@ -1,7 +1,7 @@
 Je pensais d'Emma pendant le trajet en bus chez moi.
 Pour un observateur extérieur, je pense que c'est facile de banaliser l'importance d'une « meilleure amie », mais quand on est une enfant, personne n'est plus importante.
 Emma avait été ma meilleure amie de CP tout au long le collège.
-Cela ne suffisait pas de passer tous notre temps à l'école, puis nous alternâmes rester chez l'autre chaque weekend.
+Cela ne suffisait pas de passer tous notre temps à l'école, puis nous alternâmes rester chez l'autre chaque week-end.
 Je peux me souvenir ma mère disait que nous étions si proche que nous étions pratiquement les soeurs.
 
 Une amitié si profonde est intime.
@@ -33,9 +33,9 @@ Maintenant ce cahier était abîmé, il faudrait que je copie environ deux cents
 Si je pouvais même me rappeler ce que j'avais écrit.
 
 Le bus s'arrêta près chez moi, et je descendai, essayais ignorer les regards fixes.
-Même avec les regards, la connaissance que mon cahier était abîmé et mon anxieté de manquer les classes dnas l'après-midi sans permission, je sentais mieux alors que j'allais plus près chez moi.
+Même avec les regards, la connaissance que mon cahier était abîmé et mon anxiété de manquer les classes dans l'après-midi sans permission, je sentais mieux alors que j'allais plus près chez moi.
 C'était très meilleur de savoir que je pourrais baisser ma garde et arrêter de se demander quand le prochain incident se passerait.
-Je me lassai dans la maison et se dirigeais directement vers la douche, même pas enlever mon sac ou mes chausseures jusqu'à j'étais dans la salle de bain.
+Je me lassai dans la maison et se dirigeais directement vers la douche, même pas enlever mon sac ou mes chausseurs jusqu'à j'étais dans la salle de bain.
 
 J'étais sous le courant, espérant que l'eau pourrait éliminer des taches.
 Je réfléchissais.
@@ -57,7 +57,7 @@ Le projet d'art était complètement détruit, les vêtements étaient irrécup�
 Je fixai sur ça.
 
 J'éteignis la douche, ensuite je me séchai avec une serviette.
-Je me couvrirai avec le serviette et à la place de me diriger à mon chambre pour m'habiller, je mis mes vêtements mouillés dans le panier à linge, je saisis mon sac et j'allai en bas, à travers la cuisine et dans le sous-sol.
+Je me couvrirai avec la serviette et à la place de me diriger à mon chambre pour m'habiller, je mis mes vêtements mouillés dans le panier à linge, je saisis mon sac et j'allai en bas, à travers la cuisine et dans le sous-sol.
 
 Ma maison est vieille et le sous-sol n'étais jamais rénové.
 Les murs et le sol sont en béton et le plafond avait les câbles exposés.
@@ -87,24 +87,24 @@ Même elles étaient sous mon contrôle complet, elles m'effrayaient.
 À ma demande, les douzaines sur douzaines des araignées s'arrangèrent et commencèrent à poser les lignes de soie sur l'établi et les tisser dans un seul oeuvre.
 
 Il y a trois mois, après que j'avais récupéré de la manifestation de mes pouvoirs, j'avais commencé à préparer pour mon but.
-La préparation avait impliqué un programme d'entraînement, entraîner mon pouvoir, faire la récherche, et préparer mon costume.
+La préparation avait impliqué un programme d'entraînement, entraîner mon pouvoir, faire la recherche, et préparer mon costume.
 Préparer un costume est plus difficile qu'on ne le pense.
-Bien que les membres des équipes des super-héros ont sûrement les sources officiels pour leur costume, les autres avait besoin d'achèter leur costume, le contruire petit à petit avec les choses qui achetaient d'un magasin, ou le faire de zéro.
+Bien que les membres des équipes des super-héros ont sûrement les sources officiels pour leur costume, les autres avait besoin d’acheter leur costume, le construire petit à petit avec les choses qui achetaient d'un magasin, ou le faire de zéro.
 Chaque option a ses problèmes.
 Si on acheta son costume sur l'internet on risquait étant découvert avant on avait même mis son costume.
-On pourrait assembler un costume avec les choses qui achètaient de magasins mais peu de gens pourrait faire ça bien.
+On pourrait assembler un costume avec les choses qui achetaient de magasins mais peu de gens pourrait faire ça bien.
 L'option final, assemblant un costume de zéro, était beaucoup de travail et pourrait avoir les mêmes risques des deux autres - étant découvert ou ayant un costume nul - dépendant de comment on obtient les pièces du costume.
 
 Dans la deuxième semaine après que j'avais commencé à comprendre mes pouvoirs, quand je n'étais pas sûre ce qui se passait, j'avais rencontré une émission au sujet d'un tenue qui pourrait résister à une attaque d'un ours.
 L'émission avait mentionné que le tenue était composé de soie d'araignée synthétique, qui avait inspiré mon projet.
-Pourqoui est-ce que je devrais utiliser la soie synthétique si je pourrais produire la vraie chose?
+Pourquoi est-ce que je devrais utiliser la soie synthétique si je pourrais produire la vraie chose?
 
 Pour être honnête, le procès était plus difficile que cela.
 Pas toutes les araignées marcherais, et les veuves noires étaient difficile de trouver.
 Typiquement elles ne se trouvaient pas dans le nord-est, qui a un climat plus froid, mais heureusement l'élément essentiel qui a fait Brockton Bay une destination préférée des vacanciers aussi le fait une place ou les veuves noirs pourrait vivre, si pas bien se porter.
 À savoir, il faisait chaud.
-À grace de la géographie environnante et l'océan limitrophes à l'est, Brockton Bay a l'hiver doux et l'été chaud confortablement.
-Les veuves noires et les gens qui courent partout avec des costumes moulants etaient tous les deux reconnaissants pour les bons temps.
+À grâce de la géographie environnante et l'océan limitrophes à l'est, Brockton Bay a l'hiver doux et l'été chaud confortablement.
+Les veuves noires et les gens qui courent partout avec des costumes moulants étaient tous les deux reconnaissants pour les bons temps.
 
 Avec mon pouvoir, je me suis assurée que les araignées puissent se multiplier.
 Je les avais gardé dans des endroits sûrs et les avais engraissé avec de la proie que j'avais dirigé vers eux.
@@ -112,3 +112,27 @@ J'avais flippé le changement mental qui leur a dit se reproduire et pondre les 
 Le problème le plus sérieux avait été que les veuves noires sont territoriales donc il fallait les étendre afin d'assurer qu'elles ne se tuaient pas quand je n'étais pas là pour les diriger.
 Une fois par semaine, pendant que je faisais mon jogging du matin, je les faisais tourner pour que j'avais une réserve fraîche et remplies avec des protéines de soie.
 Cela a permis à moi que les araignées étaient toujours prêtes pour travailler sur le costume dans l'après-midi, après l'école.
+
+Ouais, je devais une vie.
+
+Mais j'ai un impressionnant costume.
+
+Le costume n'était pas beau, encore.
+La fabrique était un gris-jaune sale.
+Les parties blindées avaient été fait avec des coquilles et des exosquelettes ordonné précisément que j'avais cannibalisé de la population du coin d'insectes et puis avais renforcé avec de soie.
+Au fin, les parties blindées se sont trouvées marrons-gris foncées et bigarrées.
+Ça ne me dérangeais pas.
+Quand toute la chose était fini, je comptais faire teindre la fabrique et peindre l'armure.
+
+La raison pour laquelle j'étais si contente avec mon costume était le fait qu'il était flexible, durable, et incroyablement léger, étant la quantité d'armure que j'avais utilisé.
+À un moment j'avais mal calculé les dimensions d'une des jambes et quand j'ai essayé de la coupé, j'avais trouvé que je ne pouvais pas la couper avec mon canif.
+J'avais eu besoin d'utiliser une pince coupante, et il était difficile encore.
+Pour ma part, le costume était tout qu'un super-héros voulait pour un costume.
+
+Je n'étais pas disposée à tester le costume, mais je nourris des espoirs qu'il était pare-balles.
+Ou au moins que les parties sections sur mes organes vitales étaient pare-balles.
+
+Le plan était finir mon costume pendant le mois et quand l'année a fini et l'été a commencé, je rejoindrais le monde des super-héros.
+
+Mais le plan a changé.
+J'ai enlevé ma serviette et je l'ai accroché à un coin du banc.
